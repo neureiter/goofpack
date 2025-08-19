@@ -43,6 +43,7 @@ Fucked up in the crib goin', goin' dumb
 | C418 - blocks |  Fucked Up In The Crib  |
 | C418 - 11 |   Evil Jonkler Beatbox  |
 | Lena Raine - Pigstep |   Pigstep (Funya Mashup)  |
+| Amos Roddy - Tears | Cisco Party Sahne (Gu)  |
 
 ### Paintings
 * Skull Spinning (4x4)
